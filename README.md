@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Baksokontoll
-- 👀 I’m interested in Makaroni sebaskom Full
+- 👋 Hi, I’m @dhanniii
+- 👀 I’m interested in wleowleowleo
 - 🌱 I’m currently learning pewarnaan kulit orang jawa
 - 💞️ I’m looking to collaborate on niggaXjawir
 
